@@ -15,3 +15,11 @@ https://www.youtube.com/watch?v=b8q81DgNehY
 https://www.youtube.com/watch?v=6JehGR1kzrA
 
 ---
+
+## 2026_11_18_上午
+https://youtube.com/live/0KCFBXpJ5Sg
+
+## 2026_11_18_下午
+https://www.youtube.com/watch?v=wTdh-2ELBfI
+
+---
